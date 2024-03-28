@@ -1,0 +1,1 @@
+Installation 1 is the first city the [[Protagonist]] comes. It is one of the last cities on [[Anu]].
